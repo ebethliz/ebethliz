@@ -31,14 +31,12 @@ I am a volunteer with the Singapore Scouts Association since 2007 and has been i
 
 I have a Bachelor of Science in Business Computing & Info Tech w/ First Class Honours from University of Wales. 
 
-**Personal life
-**
+**Personal life**
 She is an involved mother to her three children and has been journeying with them through their ups and downs. Her children are currently 18, 16, and 10 years old. 
 Being a hands-on mother, she understands the challenges parents face daily. 
 During their formative years, she was a home-schooling mum, and part of the local home-schooling community. Her children were also breastfed till they naturally weaned. 
 
-**Beliefs
-**Her belief is that to get children to thrive in life, there is a need to do more than teach them how to read and write – they need to be taught how to manage their emotions. They also need to be seen and adequately supported.
+**Beliefs**Her belief is that to get children to thrive in life, there is a need to do more than teach them how to read and write – they need to be taught how to manage their emotions. They also need to be seen and adequately supported.
 
 - 📫 How to reach me **ebethliz@yahoo.com**
 
