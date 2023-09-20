@@ -38,6 +38,7 @@ Being a hands-on mother, she understands the challenges parents face daily.
 During their formative years, she was a home-schooling mum, and part of the local home-schooling community. Her children were also breastfed till they naturally weaned. 
 
 **Beliefs**
+
 Her belief is that to get children to thrive in life, there is a need to do more than teach them how to read and write – they need to be taught how to manage their emotions. They also need to be seen and adequately supported.
 
 - 📫 How to reach me **ebethliz@yahoo.com**
