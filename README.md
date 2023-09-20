@@ -1,7 +1,7 @@
 <h1 align="center">Hi 👋, I'm Elizabeth</h1>
 <h3 align="center">A IT Professional from Singapore</h3>
 
-🔭 I’m currently working on helping people get to production faster.
+🔭 I’m currently working on helping fellow humans thrive emotionally, mentally, technologically.
 
 🌱 I’m currently learning SRE/Software Quality Assurance (学无止境).
 
@@ -13,7 +13,9 @@
 
 😄 Pronouns: she/her
 
-⚡ Fun fact: I possess a Registered Behavior Technician Qualification from Autism Partnership Foundation, USA.
+⚡ Fun fact (Personal): I love to express myself through movement, was in Chinese Dance and Gymasntics in my formative years. 
+
+⚡ Fun fact (Professional): I possess a Registered Behavior Technician Qualification from Autism Partnership Foundation, USA.
 
 “The Registered Behavior Technician (RBT®) is an internationally recognized paraprofessional certification in behavior analysis. RBTs assist in areas such as delivering direct behavior-analytic services, aiding in implementing behavior plans which are developed by the Board Certified Behavior Analyst (BCBA®) or Board Certified Assistant Behavior Analyst ® (BCaBA ®), and collecting data.”
 
